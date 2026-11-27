@@ -6,4 +6,4 @@ https://soundcloud.com/n3vebtw
 
 [Youtube](https://youtube.com/@bostikdante)
 
-# [Playing [The man who sold the world]](https://youtube/watch/opcxj775E)
+# [Playing [The man who sold the world]](https://www.youtube.com/watch?v=opcxj775E-o)
